@@ -46,3 +46,20 @@ https://www.rezi.ai
 
 [15] mosaic ai (keywords)
 https://lnkd.in/d3B2G9g
+
+
+*********************
+Here are a few websites where you can create resumes for free:
+
+1️⃣ Canva - https://www.canva.com/
+2️⃣ Novoresume - https://novoresume.com/
+3️⃣ Indeed's Resume Builder - https://lnkd.in/dwZfJsXA
+4️⃣ Resume.com - https://www.resume.com/
+5️⃣ Zety - https://zety.com/
+6️⃣ Resumebuild - https://resumebuild.com/
+7️⃣ LiveCareer - https://lnkd.in/dW6svs_2
+8️⃣ ResumeGenius - https://resumegenius.com/
+9️⃣ MyPerfectResume - https://lnkd.in/ddHzuUND
+🔟 Hloom - https://www.hloom.com/
+
+
