@@ -62,4 +62,27 @@ Here are a few websites where you can create resumes for free:
 9️⃣ MyPerfectResume - https://lnkd.in/ddHzuUND
 🔟 Hloom - https://www.hloom.com/
 
+****************
+
+Here, I am sharing some links to resume templates. 🚀
+
+Just handpicked some good latex resume templates for you 
+
+- https://lnkd.in/drR8cGCJ
+
+- https://lnkd.in/dPZtGucc
+
+- https://lnkd.in/dwprkxrE
+
+- https://lnkd.in/d3KTm3fm
+
+- https://lnkd.in/d6Tei5Y8
+
+you may also try NovoResume
+
+They also provide some good free templates
+
+https://novoresume.com/
+
+
 
