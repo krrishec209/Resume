@@ -85,4 +85,31 @@ They also provide some good free templates
 https://novoresume.com/
 
 
+*************************
+
+Check PDF Source
+
+Resume resources from IITs, IIMs & top universities!
+
+Use these to get interview calls from MNCs🔻
+
+📌 Harvard Resume Guide - https://lnkd.in/gj5Gq_kY 
+📌 MIT Resume Guide - https://lnkd.in/gH67Hd_w 
+📌 Resume builder from Indeed - https://www.resume.com/ 
+📌 ATS-friendly resume builder with optimization tools - https://lnkd.in/gaFmJ89a
+📌 Resume templates and examples - www.hloom.com/resumes
+📌 Resume builder with industry-specific content - https://lnkd.in/gg5eQV_a
+📌 1:1 expert resume review, resume optimization support and end-to-end interview prep help.
+
+Book a FREE call: https://lnkd.in/gzsV9QQS 
+
+✅ Tips to Make Your Resume Stand Out:
+
+✔ Customize for Each Job: Use keywords from the job description.
+✔ Show Results: Quantify achievements (e.g., "Increased sales by 30%").
+✔ Use Strong Action Words: Start bullet points with verbs like "led."
+✔ Get it reviewed – Industry expectations are high, get your resume reviewed by an expert who understands these expectations and can help you stand out.
+
+https://www.linkedin.com/posts/jyoti-kumari-668031304_resume-guide-ugcPost-7311702603115966464-sWic?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
+
 
