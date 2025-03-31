@@ -190,5 +190,95 @@ RESUME PDF
 https://www.linkedin.com/posts/saibysani18_sample-resume-ugcPost-7312452874771271680-EZev?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
 
 
+**************************
+
+PROMPTS
+
+Copy and paste these ChatGPT Prompts to write a killer Resume
+
+Turn your resume into a powerful tool that stands out!
+
+[Save Now]
+
+1. Enhance Visual Presentation
+
+Prompt: Provide recommendations on how to improve the visual layout and formatting of my resume to make it more appealing and easy to read. Here's my resume: [ Resume].
+
+2. Customize for the Desired Role
+
+Prompt: Adapt my resume to emphasize the skills and experiences that align with the [DESIRED ROLE] role. Here's my resume: [Resume]. Here's job description: [Job Description].
+
+3. Highlight Leadership Experience
+
+Prompt: Review my resume to better highlight my leadership skills for a [JOB TITLE] role at [COMPANY]. Here's my resume and job description: [Paste Resume] [Job Des].
+
+4. Refine for Impactful Language
+
+Prompt: Enhance my resume to make my experiences sound more impactful and action-oriented for a [ROLE] position. Here's my resume: [Resume]. Here's job description: [Job Description].
+
+5. Emphasize Collaboration Skills
+
+Prompt: I want to highlight my teamwork and collaboration skills for a [ROLE] role. How can I effectively present them on my resume? Here's my resume: [Resume]. Here's job description: [Job Desc].
+
+6. Showcase Problem-Solving Abilities
+
+Prompt: Review my resume and suggest ways to highlight my problem-solving skills and how they've contributed to success in previous roles. Here's my resume: [Resume].
+
+7. Craft a Compelling Objective Statement
+
+Prompt: Based on my resume and the job description, create an objective statement that clearly communicates my goals and alignment with the [JOB TITLE] role at [COMPANY]. Here's my resume: [Resume].
+
+Bonus Alert🎁 
+
+Boost Your Skills with Courses from Google, IBM, and Microsoft.
+
+🔥7000+ Courses Access: https://lnkd.in/gMTEDK_w
+
+👉Google Data Analytics
+https://lnkd.in/dr9uhU9B
+👉Google Project Management
+https://lnkd.in/dKkuukH7
+👉Google IT Support
+https://lnkd.in/dDzrk-a9
+👉Foundations of Cybersecurity
+https://lnkd.in/dZbUpFQ9
+👉Google UX Design
+https://lnkd.in/dzmEXR4B
+👉Google Advanced Data Analytics
+https://lnkd.in/d5nnPcp6
+👉Google IT Automation with Python
+https://lnkd.in/d3Da_vHG
+👉Meta Front-End Developer
+https://lnkd.in/dbqaCRdc
+👉IBM Data Science
+https://lnkd.in/dP2ryWVq
+👉Python for Data Science, AI & Development
+https://lnkd.in/dD8Nx_FC
+👉SQL for Data Science
+https://lnkd.in/d_Chh_fw
+👉SQL for Data Science with R
+https://lnkd.in/gmXJcBjb
+👉IBM Data Analytics with Excel and R
+https://lnkd.in/dAVRyeE6
+👉Excel to MySQL: Analytic Techniques for Business
+https://lnkd.in/d5bvCYa5
+👉Microsoft Azure Data Scientist 
+https://lnkd.in/df4-z9qd
+👉 Microsoft Cybersecurity Analyst
+https://lnkd.in/dSg6erKD
+👉 Microsoft Power BI Data Analyst
+https://lnkd.in/dXHbgXZD
+
+🔵 Join telegram for Jobs/Notes: https://lnkd.in/gi52pppv
+
+Follow for more such content❤️
+
+hashtag#linkedinlearning hashtag#ai hashtag#sql hashtag#python hashtag#coursera hashtag#courses
+
+RESUME PDF
+
+https://www.linkedin.com/posts/ishika-rawat-464259260_linkedinlearning-ai-sql-activity-7312307784144801792-XRCO?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
+
+
 
 
