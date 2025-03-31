@@ -113,3 +113,82 @@ Book a FREE call: https://lnkd.in/gzsV9QQS
 https://www.linkedin.com/posts/jyoti-kumari-668031304_resume-guide-ugcPost-7311702603115966464-sWic?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
 
 
+*************************
+
+
+This resume can help you get calls from your dream companies!
+
+
+A good resume can make all the difference as it's the first step to getting an interview call. Make sure to put in a good amount of time and effort to get it reviewed.
+
+Here's a sample resume that consistently lands interviews at top tech companies, and break down why it works so well:
+
+The Elements of an Outstanding Resume:
+
+➜ 𝐐𝐮𝐚𝐧𝐭𝐢𝐟𝐢𝐚𝐛𝐥𝐞 𝐀𝐜𝐡𝐢𝐞𝐯𝐞𝐦𝐞𝐧𝐭𝐬
+
+↳ 75% reduction in load times
+↳ 40% increase in retrieval efficiency
+↳ $75K in annual cost savings
+
+𝐖𝐡𝐲 𝐢𝐭 𝐦𝐚𝐭𝐭𝐞𝐫𝐬: Numbers demonstrate real impact and make your contributions impossible to dismiss.
+
+➜ 𝐂𝐨𝐦𝐩𝐫𝐞𝐡𝐞𝐧𝐬𝐢𝐯𝐞 𝐒𝐤𝐢𝐥𝐥 𝐒𝐞𝐭
+
+↳ Data Tools: SQL, Python (with specific libraries), Power BI, Tableau
+↳ Technical: Machine Learning, A/B Testing, Feature Engineering
+↳ Functional: Product Sense, Stakeholder Management
+
+𝐖𝐡𝐲 𝐢𝐭 𝐦𝐚𝐭𝐭𝐞𝐫𝐬: Well-organized skills show your versatility and readiness for various challenges.
+
+➜ 𝐑𝐞𝐬𝐮𝐥𝐭𝐬-𝐅𝐨𝐜𝐮𝐬𝐞𝐝 𝐄𝐱𝐩𝐞𝐫𝐢𝐞𝐧𝐜𝐞
+
+↳ "Improved user satisfaction from 3.7 to 4.5"
+↳ "Optimized code performance from O(n²) to O(n log n)"
+↳ "Increased enterprise adoption by 22%"
+
+𝐖𝐡𝐲 𝐢𝐭 𝐦𝐚𝐭𝐭𝐞𝐫𝐬: These show you don't just complete tasks—you solve problems and create value.
+
+➜ 𝐒𝐭𝐫𝐚𝐭𝐞𝐠𝐢𝐜 𝐏𝐫𝐨𝐣𝐞𝐜𝐭𝐬
+
+Notice how each project includes both the technical approach 𝐀𝐍𝐃 business impact:
+
+↳ Built ML model with 85% accuracy → Led to 20% decrease in churn
+↳ Created time-series forecasting → Improved demand projections by 30%
+
+𝐖𝐡𝐲 𝐢𝐭 𝐦𝐚𝐭𝐭𝐞𝐫𝐬: Demonstrates you understand the "why" behind the work.
+
+➜ 𝐑𝐞𝐬𝐮𝐦𝐞 𝐁𝐞𝐬𝐭 𝐏𝐫𝐚𝐜𝐭𝐢𝐜𝐞𝐬
+
+↳ No photos - Prevents bias and keeps focus on qualifications
+↳ Clean, scannable format - Recruiters spend an average of 7 seconds on initial review
+↳ One page for early/mid-career - Prioritize your most impressive accomplishments
+↳ Tailored to each role - Highlight relevant experience for the specific position
+↳ Active voice with power verbs - "Reduced," "Developed," "Engineered" instead of "Responsible for"
+
+➜ 𝐍𝐞𝐭𝐰𝐨𝐫𝐤𝐢𝐧𝐠: 𝐘𝐨𝐮𝐫 𝐒𝐞𝐜𝐫𝐞𝐭 𝐖𝐞𝐚𝐩𝐨𝐧
+
+↳ Build genuine connections on LinkedIn and industry events 
+↳ Engage with content from companies you admire 
+↳ Reach out to alumni working at your target companies 
+↳ Remember: Referrals increase your chances by 15x!
+
+𝐑𝐞𝐦𝐞𝐦𝐛𝐞𝐫: With hundreds of applications for each role, there's only a ~2-3% chance your resume reaches the hiring manager.
+
+Your resume isn't just telling what you did, it's selling what you can do.
+
+𝐘𝐨𝐮 𝐜𝐚𝐧 𝐜𝐫𝐞𝐚𝐭𝐞 𝐚 𝐬𝐢𝐦𝐢𝐥𝐚𝐫 𝐀𝐓𝐒-𝐟𝐫𝐢𝐞𝐧𝐝𝐥𝐲 𝐫𝐞𝐬𝐮𝐦𝐞 𝐡𝐞𝐫𝐞: https://lnkd.in/dafDsGJq 
+
+Each application is a stepping stone toward your ideal career. I hope you hear the one "𝐘𝐄𝐒" soon!
+
+♻️ Repost to help jobseekers!
+
+𝗣.𝗦. if you want to learn more, check out my 𝐅𝐑𝐄𝐄 newsletter → https://lnkd.in/dUfe4Ac6
+
+RESUME PDF
+
+https://www.linkedin.com/posts/saibysani18_sample-resume-ugcPost-7312452874771271680-EZev?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
+
+
+
+
